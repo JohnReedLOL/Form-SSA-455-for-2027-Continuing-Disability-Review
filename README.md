@@ -7,7 +7,7 @@ Form SSA-455 Answers With Additional Information
 
 1. Within the last 2 years have you worked for someone or been self-employed? Yes or No?
 
-Within the last 2 years, I have not worked for someone or been self-employed. I have not worked since year 2019, the year I was approved for SSDI. In year 2019, I made an unsuccessful work attempt lasting less than 30 days because I could not do my job. I will NEVER work for anyone or be self-employed because my disabilities and/or conditions are permanent.
+No, within the last 2 years I have not worked for someone or been self-employed. I have not worked since year 2019, the year I was approved for SSDI. In year 2019, I made an unsuccessful work attempt lasting less than 30 days because I could not do my job. I will NEVER work for anyone or be self-employed because my disabilities and/or conditions are permanent.
 
 If yes, please complete the information below.
 
